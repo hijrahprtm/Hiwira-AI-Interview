@@ -10,7 +10,7 @@ I'm starting to build small company as CEO. I build HRD AI for interviewing cand
 [IMG_7838.mp3](https://github.com/user-attachments/files/28471252/IMG_7838.mp3)
 
 
-<audio controls src="https://github.com"></audio>
+▶️ **[Dengarkan Sound Audio di Sini](https://github.com)**
 
 
 
