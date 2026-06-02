@@ -8,7 +8,8 @@ I'm starting to build small company as CEO. I build HRD AI for interviewing cand
 
 **Here's the audio of recorded** :
 
-[IMG_7838.mp3](https://github.com/user-attachments/files/28471252/IMG_7838.mp3)
+[sound.mp3](https://github.com/user-attachments/files/28489055/sound.mp3)
+
 
 
 
